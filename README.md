@@ -1,1 +1,0 @@
-# dvrkv1per.github.io
